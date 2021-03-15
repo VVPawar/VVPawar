@@ -8,4 +8,4 @@
 - 💬 Ask me about Core Java.
 - 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/vipul2020) or [Vipul-Pawar](https://vipulpawar.netlify.app/).
 - 😄 Pronouns: He/His
-- ⚡ Fun fact: I like to watch anime movies :smiley:
+- ⚡ Fun fact: I like to watch animation movies :smiley:
